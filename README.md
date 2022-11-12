@@ -1,4 +1,4 @@
-# B-p-i-i-n-t-Sunhouse-c-th-c-s-t-t-An-to-n-
+#Bếp đôi điện từ Sunhouse có thực sự tốt ? An toàn ?
 Thương hiệu của nước đó? Bếp đôi điện từ Sunhouse có an toàn không? Đây là thắc mắc của các bạn gởi đến từ Iris.
 
 Khi nhu cầu nấu nướng của mỗi người càng ngày càng cao thì việc sở hữu một chiếc bếp từ sẽ giúp việc nấu nướng trở nên dễ dàng và tiện lợi hơn bao giờ hết. Hãy thử theo dõi những đặc tính của chiếc bếp đôi điện từ Sunhouse xem chúng có gì khác biệt nhé!
